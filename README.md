@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Madde-TV
+- 👀 I’m interested in anything sci-fi
+- 🌱 I’m currently learning python
+- 📫 How to reach me - maybe don't, I probably won't respond
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm bilingual in both English and Norwegian
